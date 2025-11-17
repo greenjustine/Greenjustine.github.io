@@ -4,4 +4,4 @@ Human Factors Researcher /
 UX Researcher / 
 Design Strategist /
 Service Designer . Welcome!
-Please explore the attached PDF file to access work samples
+Please explore the attached PDF file to access work samples.
