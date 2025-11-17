@@ -1,5 +1,5 @@
 # Greenjustine.github.io
-Justine Dupal
+Justine Dupal :
 Human Factors Researcher /
 UX Researcher / 
 Design Strategist /
