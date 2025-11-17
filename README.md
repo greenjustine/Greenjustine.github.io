@@ -3,4 +3,5 @@ Justine Dupal :
 Human Factors Researcher /
 UX Researcher / 
 Design Strategist /
-Service Designer
+Service Designer /
+Please explore the PDF link to access work samples
