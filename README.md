@@ -1,7 +1,5 @@
 # Greenjustine.github.io
-Justine Dupal :
-Human Factors Researcher /
-UX Researcher / 
-Design Strategist /
-Service Designer . Welcome!
+Justine Dupal :\
+Service Designer / UX Researcher / Design Strategist / Human Factors Researcher \
+Welcome!
 Please explore the attached PDF file to access work samples.
